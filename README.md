@@ -4,7 +4,7 @@
 
 ## ✅𝐓𝐇𝐄 𝐁𝐎𝐓 𝐈𝐒 100% 𝐒𝐀𝐅𝐄 𝐎𝐍 𝐇𝐄𝐑𝐎𝐊𝐔💯
 
-[![Typing /JBKNY+⭕+𝐂𝐑𝐄𝐀𝐓𝐄𝐃+𝐁𝐘+JBTECH)](https://git.io/typing-svg) 
+[![Typing/JBKNY+⭕+𝐂𝐑𝐄𝐀𝐓𝐄𝐃+𝐁𝐘+JBTECH)](https://git.io/typing-svg) 
 
 <p align="centre"><img src="https://files.catbox.moe/ibi3x2.jpg" width="500" height="500" />
 
